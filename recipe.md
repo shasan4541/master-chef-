@@ -1,0 +1,1 @@
+first put the milk then put the pasta in it and let the pasta become soft then add cheese and in the last add chilli flakes and oregano 
